@@ -1,0 +1,2 @@
+# .github
+**KLETKA APK Mobile** is an exciting multiplayer survival game available for **Android** and **iOS**. Team up with friends or other players to solve challenging puzzles, escape traps, and survive in intense environments. With easy APK download options for mobile devices, KLETKA brings immersive gameplay and thrilling escape scenarios to your fingertips. Download now to test your skills and enjoy the ultimate survival adventure on your mobile!
